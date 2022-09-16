@@ -1,1 +1,0 @@
-# MugahidAlluqmani.github.io
